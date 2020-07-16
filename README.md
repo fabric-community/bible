@@ -11,6 +11,7 @@ Although they did not reach their intended destination, they had instead stumble
 They maintained the order and balance of Bikeshed, keeping its citizens perpetually thinking, preventing them from ever successfully revolting against the greedy king, and halting all progress. 
 
 Once they climbed to the top of Mt. Fabric and entered the castle, they spoke to the king, King Liach, and asked for asylum. The king said "Very bad idea, so many stowaways with scurvy and so much bone cheese, trying to sneak in harmful food but I hereby block your malicious attempt. But I will help you, if you can meet my demands." The sailor asked the king what said demands were. "Sacrifice one of your members to be thrown into the pit of irritaters". 
+
 The sailor gasped. It was well known throughout the world that irritaters were harsh and had no mercy, they seeked only vengeance for the crimes humanity had commited on tater-kind. 
 
 His assistant pointed out to him that the king had not specified which of the crew they had to sacrifice, and that they could just sacrifice the Fraction. The sailor nodded, and turned his face back to the king and said "We accept your transaction, your irritaters will have quite the feast today". He ordered the other crew members to drag the Fraction to the steps of the mountain, where the king's men would dispose of the creature. Its dying words were "Please abort this transaction before it's too late!", but an irritater's blade confirmed the transaction, there was no coming back from this deed. The creature was dead.
