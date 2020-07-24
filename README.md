@@ -12,9 +12,7 @@ A few days of travel and suddenly the ocean beneath them quaked, and a 3 headed 
 
 Although they did not reach their intended destination, they had instead stumbled upon a mystical place, where countless hours could be spent solely in deliberation... Bikeshed Kingdom. On their journey to the castle at the top of the mountain, they climbed the steps of Config, marveled at the Statue of Permissions, and watched the Waterfall of Packets.
 
-They maintained the order and balance of Bikeshed, keeping its citizens perpetually thinking, preventing them from ever successfully revolting against the greedy king, and halting all progress.
-
-Once they climbed to the top of Mt. Fabric and entered the castle, they spoke to the king, King Liach, and asked for asylum.
+They maintained the order and balance of Bikeshed, keeping its citizens perpetually thinking, preventing them from ever successfully revolting against the greedy king, and halting all progress. Once they climbed to the top of Mt. Fabric and entered the castle, they spoke to the king, King Liach, and asked for asylum.
 
 The king said "Very bad idea, so many stowaways with scurvy and so much bone cheese, trying to sneak in harmful food but I hereby block your malicious attempt. But I will help you if you can meet my demands."
 
